@@ -1,4 +1,4 @@
-# 
+# Smart DaVinci Resolve for PC executor is the best DaVinci Resolve for PC executor with collaboration-tools and multi-track-editing. Safe, reliable, and optimized for maximum
 
 
 
